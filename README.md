@@ -1,1 +1,1 @@
-# all_docs
+# All Docs Available under **WIKI**
